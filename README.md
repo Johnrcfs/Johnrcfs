@@ -38,8 +38,6 @@ sou Amante da tecnologias dês do Desenvolvimento de Software a IOT.
 
 - Tenho vontade de ir mora fora do Brasil, quem não tem né? mais especificamente no Canada (Toronto).🇨🇦
 
-- Gosto de conhecer novas pessoas, Fazer Networks, Amizades.
-
 - Adoro conhecer coisas novas, trabalhar em grupo e obter novas experiências, almejo trabalhar fora do Brasil, para melhorar meu Inglês e conhecer novas culturas, pessoas e ter novas experiências. 😄
 
 
